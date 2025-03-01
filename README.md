@@ -2,7 +2,7 @@
 - 👀 I’m interested in cricket 
 - 🌱 I’m currently learning programming langguage
 - 💞️ I’m looking to collaborate with software company
-- 📫 u can reach me on anketdede12@gmail.
+- 📫 u can reach me on aniketdede12@gmail.
 - ⚡ Fun fact ; that my whole past is just a complete drama 
 
 <!---
